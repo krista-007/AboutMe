@@ -63,8 +63,8 @@
 
 > "Keep your head held high and walk tall." - Granny :heart:
 
-![image](C:\Users\krist\Downloads\IMG_6999.jpeg)
-
+![Granny](C:\Users\krist\Downloads\IMG_6999.jpeg)
+<img src="
   
 
 > "What's the point of flying with eagles in the day time, if you're running with the turkeys at night." - Gramps :smile:
